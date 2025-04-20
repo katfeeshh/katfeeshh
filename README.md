@@ -30,4 +30,3 @@ my discord is _katfeesh, feel free to add me id love to talk!!
 
 
 *"Maybe it's a blessing in disguise, I see my reflection in your eyes." <3*
-![𖥔 ִ ֗ ִ ۫ ˑ Wriothesley emoji﹗](https://github.com/user-attachments/assets/7fd24a52-40f7-4912-89d6-768fee5a1948)
