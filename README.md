@@ -14,7 +14,7 @@ c+h is ALWAYS welcome i love sitting with people it makes me happy!! pls tell me
 to tone it down a little!
 
 ## dni! ❀
-basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! i block/hide freely, if i don't like you, ill js ignore u!
+basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! (few exceptions) i block/hide freely, if i don't like you, ill js ignore u!
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
