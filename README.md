@@ -26,6 +26,8 @@ my discord is _katfeesh, feel free to add me id love to talk!!
 
  < Y, T, J// A, S, M, E, D, N 3 <-- HIIII love u guys smsmmsm ty for being amazing friends!! ♡
 
+ special mention ♡ !!- my track team! OMG I LOVE U GIRLS SMMM I LOVE HOW WE HYPE EACH OTHER UP!!
+
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
 
