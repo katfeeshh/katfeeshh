@@ -9,7 +9,8 @@ call me katfeesh/kat ♡ minor (im 15!) ♡ indian ♡ any pronouns ♡ dec 25th
 
 ## byi! ❀
 im always offtab/afk, im always doing homework, at school, or at track meets!
-im never paying attention to pt unless someone is talking to me! i also get scared to talk to people pls give me some time! if I don't respond, i proabably didnt notice u yet!
+im never paying attention to pt unless someone is talking to me! i also get scared to talk to people pls give me 10 years i will probably never int first because im scared af but IM WORKING ON IT!!
+give me some time! if I don't respond, or come over to sit next to u i proabably didnt notice u yet!
 c+h is ALWAYS welcome i love sitting with people it makes me happy!! pls tell me if u need tonetags! i also talk in all caps if im comfortable around you, please tell me if i need 
 to tone it down a little!
 
