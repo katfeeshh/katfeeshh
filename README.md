@@ -28,7 +28,6 @@ my discord is _katfeesh, feel free to add me id love to talk!!
  < Y, T, J// A, S, M, E, D, N 3 <-- HIIII love u guys smsmmsm ty for being amazing friends!! ♡
 
  my online family/party: omg hihihih i love u guys SO MUCH all of u are so amazing dont forget that!! <3 ur always there for me when im feeling down or lonely or when i need a cuddle buddy AND NO I DIDNT SQUISH TOMZ!!!11!
-![IMG_2235](https://github.com/user-attachments/assets/ddb65429-aae1-4ab0-a9f4-263ec485df16)
 
 
  special mention ♡ !!- my track team! OMG I LOVE U GIRLS SMMM I LOVE HOW WE HYPE EACH OTHER UP!!
