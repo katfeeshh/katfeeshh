@@ -1,5 +1,5 @@
 ## HELLOOO!! ✧･ﾟ <3
-🌹|*"We were too close to the stars, I never knew somebody like you, somebody..."*
+🌹|*"I'd do anything for 20 bucks, I'd sell my sour soul, 'cause lemonade is bitter, 'til you sweeten up the bowl..."*
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 ![Lighter • ZZZ](https://github.com/user-attachments/assets/b91c96b8-1dba-4eb1-98a4-ea4c2ce8511c)
@@ -21,7 +21,8 @@ basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! (few 
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
-*"Fallin' just as hard, I'd rather lose somebody than use somebody..."*
+*"I'm sitting in the bathroom, I'm crying citrus tears..."*
+
 ## other stuff! ❀
 all my interests and hobbies are found on my strawpage! pls int with me, i would love to meet new people and make new friends!!
 (omg and if u run track pls bmf rnrnrnrn >:3)
@@ -37,4 +38,4 @@ my discord is _katfeesh, feel free to add me id love to talk!!
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
 
-*"Maybe it's a blessing in disguise, I see my reflection in your eyes." <3*
+*"Everything I used to love, decayed over the years." <3*
