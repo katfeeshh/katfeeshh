@@ -28,7 +28,7 @@ all my interests and hobbies are found on my strawpage! pls int with me, i would
 (omg and if u run track pls bmf rnrnrnrn >:3)
 my discord is _katfeesh, feel free to add me id love to talk!!
 
- < Y, T, J// A, S, M, E, D, N 3 <-- HIIII love u guys smsmmsm ty for being amazing friends!! ♡
+ < Y, T, J// A, S, M, E, D, N 3 <-- HIIII i adore my friends smsmmsm ty for being amazing!! ♡
 
  my online family/party: omg hihihih i love u guys SO MUCH all of u are so amazing dont forget that!! <3 ur always there for me when im feeling down or lonely or when i need a cuddle buddy AND NO I DIDNT SQUISH TOMZ!!!11!
 
