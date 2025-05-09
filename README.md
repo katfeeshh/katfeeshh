@@ -1,11 +1,11 @@
 ## HELLOOO!! ✧･ﾟ <3
-🌹|*"I'd do anything for 20 bucks, I'd sell my sour soul, 'cause lemonade is bitter, 'til you sweeten up the bowl..."*
+🌹|*"One can never know what an innocent act of kindness means to someone."*
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 ![Lighter • ZZZ](https://github.com/user-attachments/assets/b91c96b8-1dba-4eb1-98a4-ea4c2ce8511c)
 
 ## basic info! ❀
-call me katfeesh/kat ♡ minor (im 15!) ♡ indian ♡ any pronouns ♡ dec 25th is my bday! 
+call me katfeesh/kat ♡ minor (im 15!) ♡ indian ♡ any pronouns r fine ♡ dec 25th is my bday! 
 
 ## byi! ❀
 im busy almost 24/7, im always doing homework, at school, at work, or at track meets!
@@ -21,7 +21,7 @@ basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! (few 
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
-*"I'm sitting in the bathroom, I'm crying citrus tears..."*
+*"Allow me to tell you a story. Close your eyes."*
 
 ## other stuff! ❀
 all my interests and hobbies are found on my strawpage! pls int with me, i would love to meet new people and make new friends!!
@@ -33,9 +33,6 @@ my discord is _katfeesh, feel free to add me id love to talk!!
  my online family/party: omg hihihih i love u guys SO MUCH all of u are so amazing dont forget that!! <3 ur always there for me when im feeling down or lonely or when i need a cuddle buddy AND NO I DIDNT SQUISH TOMZ!!!11!
 
 
- special mention ♡ !!- my track team! OMG I LOVE U GIRLS SMMM I LOVE HOW WE HYPE EACH OTHER UP!!
-
-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
-
-
-*"Everything I used to love, decayed over the years." <3*
+ special mention ♡ !!- my track team! OMG I LOVE U GIRLS SMMM I LOVE HOW WE HYPE EACH OTHER UP!!!
+ 
+ *"Join me then. Let's drown in thr ocean, together." <3*
