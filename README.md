@@ -35,4 +35,4 @@ my discord is _katfeesh, feel free to add me id love to talk!!
 
  special mention ♡ !!- my track team! OMG I LOVE U GIRLS SMMM I LOVE HOW WE HYPE EACH OTHER UP!!!
  
- *"Join me then. Let's drown in thr ocean, together." <3*
+ *"Join me then. Let's drown in the ocean, together." <3*
