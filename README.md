@@ -14,7 +14,7 @@ give me some time- if I don't respond, or come over to sit next to u i proabably
 c+h is ALWAYS welcome i love sitting with people it makes me happy!! pls tell me if u need tonetags! i also talk in all caps if im comfortable around you, please tell me if i need 
 to tone it down a little! 
 
-if i do seem off or not talking much, im probably not in a good mood- i tore my acl recently and its been acting up a lot recently ;D and i can't run competitively until next spring or until i get my acl surgery and recover from that, so please be patient with me sometimes!! i try my best to try and not let that change the way i int with people! ^-^
+if i do seem off or not talking much, im probably not in a good mood- currently recovering from acl surgery and my knee feels like a wobbly noodle so please be patient with me sometimes!! i try my best to try and not let that change the way i int with people! ^-^
 
 ## dni! ❀
 basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! (few exceptions) i block/hide freely, if i don't like you, ill js ignore u!
