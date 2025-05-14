@@ -24,7 +24,7 @@ basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! (few 
 *"Allow me to tell you a story. Close your eyes."*
 
 ## other stuff! ❀
-all my interests and hobbies are found on my strawpage! pls int with me, i would love to meet new people and make new friends!!
+all my interests and hobbies are found on my card! pls int with me, i would love to meet new people and make new friends!!
 (omg and if u run track pls bmf rnrnrnrn >:3)
 my discord is _katfeesh, feel free to add me id love to talk!!
 
