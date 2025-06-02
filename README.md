@@ -1,5 +1,6 @@
 ## HELLOOO!! ✧･ﾟ <3
-🌹|*"One can never know what an innocent act of kindness means to someone."*
+🌹|*"Time can't heal everything..."*
+(ic goes to @SAKUERIE on twt!)
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 ![Lighter • ZZZ](https://github.com/user-attachments/assets/b91c96b8-1dba-4eb1-98a4-ea4c2ce8511c)
@@ -21,7 +22,7 @@ basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! (few 
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
-*"Allow me to tell you a story. Close your eyes."*
+*"...nor can someone simply forget the pain."*
 
 ## other stuff! ❀
 all my interests and hobbies are found on my card! pls int with me, i would love to meet new people and make new friends!!
@@ -35,4 +36,4 @@ my discord is _katfeesh, feel free to add me id love to talk!!
 
  special mention ♡ !!- my track team! ty for giving me an amazing season, ill miss u guys a lot, see u next year!! <3
  
- *"Join me then. Let's drown in the ocean, together." <3*
+ *"However, people can become accustomed to sorrow." <3*
