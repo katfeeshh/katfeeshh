@@ -1,5 +1,5 @@
 ## HELLOOO!! ✧･ﾟ <3
-🌹|*"Time can't heal everything..."*
+🌹|*"She said she also wanted to see me be vulnerable. I wanted to tell her I couldn't do such a thing."*
 
 
 (ic goes to @SAKUERIE on twt!)
@@ -24,7 +24,7 @@ basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! (few 
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
-*"...nor can someone simply forget the pain."*
+*"but the truth is..."*
 
 ## other stuff! ❀
 all my interests and hobbies are found on my card! pls int with me, i would love to meet new people and make new friends!!
@@ -38,4 +38,4 @@ my discord is _katfeesh, feel free to add me id love to talk!!
 
  special mention ♡ !!- my track team! ty for giving me an amazing season, ill miss u guys a lot, see u next year!! <3
  
- *"However, people can become accustomed to sorrow." <3*
+ *"...she, is my vulnerability." <3*
