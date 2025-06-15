@@ -1,5 +1,5 @@
 ## HELLOOO!! ✧･ﾟ <3
-🌹|*"She said, she also wanted to see me be vulnerable. I wanted to tell her I couldn't do such a thing."*
+🌹|*"She said she, also wanted to see me be vulnerable. I wanted to tell her I couldn't do such a thing."*
 
 
 (ic goes to @SAKUERIE on twt!)
