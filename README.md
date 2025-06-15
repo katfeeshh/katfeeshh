@@ -1,5 +1,5 @@
 ## HELLOOO!! ✧･ﾟ <3
-🌹|*"She said she also wanted to see me be vulnerable. I wanted to tell her I couldn't do such a thing."*
+🌹|*"She said, she also wanted to see me be vulnerable. I wanted to tell her I couldn't do such a thing."*
 
 
 (ic goes to @SAKUERIE on twt!)
@@ -24,7 +24,7 @@ basic dni criteria, please don't be mean to me or my friends! 18+ pls iwc! (few 
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
-*"but the truth is..."*
+*"...but the truth is..."*
 
 ## other stuff! ❀
 all my interests and hobbies are found on my card! pls int with me, i would love to meet new people and make new friends!!
