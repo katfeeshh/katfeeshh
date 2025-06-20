@@ -11,8 +11,8 @@
 call me katfeesh/kat ♡ minor (im 15!) ♡ indian ♡ any pronouns r fine ♡ dec 25th is my bday! 
 
 ## byi! ❀
-way more free since school's done!! only for like 2 months tho.. if im busy, im probably studying or im at work! (currently trying to get cpr certified so i can become a lifeguard! :D)
-im never paying attention to pt unless someone is talking to me since im always offtab! pls whisper me if u wanna talk, or dm me on discord! i also get scared to talk to people pls give me 10 years i will probably never int first because im scared af but IM WORKING ON IT!!
+Way more free since school's done buy only for like 2 months tho.. if im busy, im probably studying or im at work! (currently trying to get cpr certified so i can become a lifeguard! :D)
+im never paying attention to pt unless im talking w/ my friends (hi friends ily guys sm! <3) pls whisper me if u wanna talk, or dm me on discord! i also get scared to talk to people pls give me 10 years i will probably never int first because im scared af but IM WORKING ON IT!!
 give me some time- if I don't respond, or come over to sit next to u i proabably didnt notice u yet!
 c+h is ALWAYS welcome i love sitting with people it makes me happy!! pls tell me if u need tonetags! i also talk in all caps if im comfortable around you, please tell me if i need 
 to tone it down a little!
