@@ -4,8 +4,10 @@
 
 (ic goes to @SAKUERIE on twt!)
 
-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
-![Lighter • ZZZ](https://github.com/user-attachments/assets/b91c96b8-1dba-4eb1-98a4-ea4c2ce8511c)
+.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-)
+
+![IMG_2792](https://github.com/user-attachments/assets/a97a6078-14b9-40cb-8119-380aca4c781d)
+
 
 ## basic info! ❀
 call me katfeesh/kat ♡ minor (im 15!) ♡ indian ♡ any pronouns r fine ♡ dec 25th is my bday! 
