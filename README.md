@@ -17,7 +17,7 @@ i match the enegry that you give me! im not a big yapper unless im comfortable a
 
 c+h is ALWAYS welcome on ponytown, i love cuddles and i dont mind sitting in silence, it makes me happy!! pls tell me if u need tonetags, i usually don't use them. i also talk in all caps if im comfortable around you, please tell me if im being too annoying or too much and im happy to tone it down!
 
-i retore my acl again doing stupid stuff... oopsie ૮ ․ ․ ྀིა im recovering from acl surgery again, im rlly sorry if i seem off! pls be patient with me!! 
+ 
 
 ## dni! ❀
 basic dni criteria, please don't be mean to my friends! 18+ pls iwc! (few exceptions) i block/hide freely, if i don't like you, ill js ignore u!
