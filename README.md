@@ -1,5 +1,5 @@
 ## hai! ✧･ﾟ 
-🌹|*"She said she also wanted to see me be vulnerable. I wanted to tell her I couldn't do such a thing."*
+🌹|*"Innocent girl, don't touch, don't do it, don't wanna take your golden light..."*
 
 
 (ic goes to @SAKUERIE on twt!)
@@ -24,7 +24,7 @@ basic dni criteria, please don't be mean to my friends! 18+ pls iwc! (few except
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
-*"...but the truth is..."*
+*"..out in the world, you're just an angel..."*
 
 ## other stuff! ❀
 all my interests are found on my card! pls interact with me, id love to talk to people and make new friends! im always here to lend a listening ear, im happy to listen to people talk about anything!! 
@@ -34,5 +34,5 @@ my discord is _katfeesh, feel free to add me id love to talk!!
  --> [my lovemail!!!](https://rentry.co/katfeeshh) 
 
 
-*"...she, is my vulnerability." <3*
+*"...but here in the dark, my sacrifice." <3*
   
