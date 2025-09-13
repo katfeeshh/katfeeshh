@@ -1,5 +1,5 @@
 ## hai! ✧･ﾟ 
-🌹|*"Innocent girl, don't touch, don't do it, don't wanna take your golden light..."*
+🌹|*"I can't promise to love you perfectly..."*
 
 
 (ic goes to @SAKUERIE on twt!)
@@ -24,7 +24,7 @@ basic dni criteria, please don't be mean to my friends! 18+ pls iwc! (few except
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
 
-*"..out in the world, you're just an angel..."*
+*"...but I can promise to love you endlessly. I've loved you through every version of us and every life we never lived..."*
 
 ## other stuff! ❀
 all my interests are found on my card! pls interact with me, id love to talk to people and make new friends! im always here to lend a listening ear, im happy to listen to people talk about anything!! 
@@ -34,5 +34,5 @@ my discord is _katfeesh, feel free to add me id love to talk!!
  --> [my lovemail!!!](https://rentry.co/katfeeshh) 
 
 
-*"...but here in the dark, my sacrifice." <3*
+*"...even the stars burn until nothing remains. But, I love you endlessly." <3*
   
