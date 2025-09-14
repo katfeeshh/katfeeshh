@@ -2,7 +2,7 @@
 🌹|*"I can't promise to love you perfectly..."*
 
 
-(ic goes to @SAKUERIE on twt!)
+(ic goes to @yeurei on twt!)
 
 .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-)
 
