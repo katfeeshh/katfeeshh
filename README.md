@@ -27,7 +27,7 @@ basic dni criteria, please don't be mean to my friends! 18+ pls iwc! (few except
 *"...but I can promise to love you endlessly. I've loved you through every version of us and every life we never lived..."*
 
 ## other stuff! ❀
-all my interests are found on my card! pls interact with me, id love to talk to people and make new friends! im always here to lend a listening ear, im happy to listen to people talk about anything!! 
+pls interact with me, id love to talk to people and make new friends! im always here to lend a listening ear, im happy to listen to people talk about anything!! 
 
 my discord is _katfeesh, feel free to add me id love to talk!! 
 
