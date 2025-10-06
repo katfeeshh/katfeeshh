@@ -1,7 +1,8 @@
 ## hallooo! gives u some food ( ˵ •̀ ᴗ •́˵) ･ﾟ 
 ( <-- ic goes to @yeurei on twt!)
 
-🌹| *"Oh you say, "Good night, meet me next life" but where are you now?"* <3
+🌹| *"Flowing brown hair, fly through the twinkling stars...
+a dream-like magic carpеt ridin’, baby, now you're in my blood."*
 
 <p align="center"> .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-)
  </p>
